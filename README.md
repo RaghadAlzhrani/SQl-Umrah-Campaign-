@@ -2,7 +2,7 @@ Title: Umrah campaign
 
 group members: Ghada Al-Fahli,
 Danah Al-Matrafi,
-Ather Al-Sowatt,
+Athary Al-Sowat,
 Raneem Al-Jabri,
 Raghad Al-Zahrani,
 Manar Al-Matrafi and
